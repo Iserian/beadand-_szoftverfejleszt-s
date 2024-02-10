@@ -1,0 +1,1 @@
+# beadand-_szoftverfejleszt-s
